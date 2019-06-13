@@ -8,7 +8,7 @@ jxau 16级 第八组
   黎佳 twilightlime
   胡艺凡
   刘倩倩
-  刘政
+  刘政 Souttlz
   童康 tongkangQAQ
   王卓
 
